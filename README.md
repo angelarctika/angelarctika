@@ -1,8 +1,3 @@
-<div style="text-align: div;">
-  <img src="https://github.com/user-attachments/assets/3fece260-fec0-460f-b852-2dd8e7ad9b5b"/>
-
-  <img src="https://github.com/user-attachments/assets/f6bb6223-860e-4fa5-8682-a760691fd9a4"/>
-</div>
 
 <!--
 **angelarctika/angelarctika** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
