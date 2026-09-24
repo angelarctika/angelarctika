@@ -10,7 +10,9 @@
 
  </p>
 <p align="center">
+  <img src="a23.gif" alt="blinkie 7">
 <img width="200" height="100" alt="EVIL-PENIS-HEHE-stamp" src="https://github.com/user-attachments/assets/6c36ebac-3528-4545-a506-e2e49a532925" />
+    <img src="a69.gif" alt="blinkie 8">
 </p>
  <p align="center">                                                           READ TIS PART!!!
                                                        
