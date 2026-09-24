@@ -1,4 +1,6 @@
-## Hi there 👋
+
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/cea2192a-3f95-44e9-8b01-c3ce6964a005" />
+
 
 <!--
 **angelarctika/angelarctika** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
