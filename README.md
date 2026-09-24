@@ -1,6 +1,6 @@
 <center>
   <img src="https://github.com/user-attachments/assets/88f66e6b-0f64-4ce5-8034-97cbbb138b4f"/>
-  <img src="YOUR_BLINKIE_URL_2.gif">
+  <img src="https://github.com/user-attachments/assets/98557e3b-ee3f-48a9-898c-0c8c85827914"/>
 </center>
 
 
