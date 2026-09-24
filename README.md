@@ -17,7 +17,7 @@
    <p align="center">                                                     ❤️ 4teen years of age ❤️
   <p align="center">                            ik that makes SOME people uncomfie sooo just dni if u arent chill wit dat !!
 
-
+<p align="center"> <img src="e67.gif" alt="blinkie 5">
 <p align="center">                                                                DNI LIST:
 
 <p align="center">
@@ -26,6 +26,7 @@
                                                     bigoted/generally hateful people
 <p align="center">                                                           thats it lowkey ❤️ 
       <p align="center">                                                    i aint strict lel
+        <p align="center"> <img src="heaven.gif" alt="blinkie 6">
       <p align="center">                                                           OTHER:
        <p align="center">   if u want mah discord just whisper meee!! u gotta be on my pt friends list tho srry!!...i dont add strangers lel....                                                    
           <p align="center">                                ╰─────────────────── · · ୨୧ · · ──────────────────╯
