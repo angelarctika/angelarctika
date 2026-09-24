@@ -1,5 +1,8 @@
+<center>
+  <img src="https://github.com/user-attachments/assets/88f66e6b-0f64-4ce5-8034-97cbbb138b4f"/>
 
-  <img width="400" height="30" alt="image" src="https://github.com/user-attachments/assets/cea2192a-3f95-44e9-8b01-c3ce6964a005" />
+  <img src="YOUR_BLINKIE_URL_2.gif">
+</center>
 
 
 <!--
